@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Leasley777. My name is Latisha or Tisha for short
+- 👀 I’m interested in coding! I started to learn coding one day and immediately fell in love with it. I know code everyday and I really enjoy it. Its fun!!!
+- 🌱 I’m currently learning all of the programming languages.
+- 💞️ I’m looking to collaborate on ...
+- 📫 You can reach me on my github account.
+- 😄 Pronouns: her/she
+- ⚡ Fun fact: I enjoy learning new things everday!!! I never get tired of it.
